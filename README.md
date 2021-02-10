@@ -5,6 +5,8 @@
 
 ## 乳化
 
+### 品牌
+
 - [日本品牌POLA在店铺张贴“中国人禁止入内”](http://video.sina.com.cn/view/252157356.html) 
 
 - [德国品牌回应乳化：是风趣和幽默](https://www.guancha.cn/Celebrity/2015_06_20_324135.shtml)  在衣服上印f**k China
