@@ -6,28 +6,53 @@
 ## 乳化
 
 ### 品牌
+- POLA
 
-- [日本品牌POLA在店铺张贴“中国人禁止入内”](http://video.sina.com.cn/view/252157356.html) 
+ - [日本品牌POLA在店铺张贴“中国人禁止入内”](http://video.sina.com.cn/view/252157356.html) 
 
-- [德国品牌回应乳化：是风趣和幽默](https://www.guancha.cn/Celebrity/2015_06_20_324135.shtml)  在衣服上印f**k China
+- Philipp Plein
 
-- [杜嘉班纳设计师发表乳化言论，秀场模特罢工](https://www.guancha.cn/culture/2018_11_21_480591.shtml) “外交部回应”解读：小破牌，不值得上升为外交问题
-
-- [Spreadshirt发布“救一条狗，吃一个中国人”t恤](https://www.guancha.cn/global-news/2017_03_12_398326.shtml) 品牌方在脸书称创作是自由，不该被大使馆干涉
-
-- [范思哲把香港、澳门列为国家](https://www.guancha.cn/politics/2019_08_11_513078.shtml) 道歉称“没有使用正确的国家名称”
-
-- [coach把香港、澳门、台湾单独列为国家](https://www.guancha.cn/politics/2019_08_12_513132.shtml) 收集整理远程工作相关的资料
+ - [德国品牌回应乳化：是风趣和幽默](https://www.guancha.cn/Celebrity/2015_06_20_324135.shtml)  在衣服上印f**k China
  
-- [Tarte：ChingChong tomato](https://www.acfun.cn/v/ac14664088) 中国人发音不准，他们嘲笑中国人；外国人发不出jqx，他们嘲笑中国人；中国人不用刀叉，他们嘲笑中国人；外国人不会用筷子，他们嘲笑中国人。谁看了不说一句牛？
+- D & G
 
-- [乳化世家-巴黎世家](http://www.mnw.cn/news/cj/2088813.html) 法国人插队并推搡中国阿姨，中国阿姨反被保安及店员暴力对待，并被勒令：中国人禁止购买
+ - [杜嘉班纳设计师发表乳化言论，秀场模特罢工](https://www.guancha.cn/culture/2018_11_21_480591.shtml) “外交部回应”解读：小破牌，不值得上升为外交问题
 
-- [LUSH与Internal Tibet Network捆绑](https://news.ifeng.com/c/7fbfCGXzkCY) 公然在包装上印International Tibet Network
+- Spreadshirt
 
-- [Marriott刚为把港澳台及西藏列为国家的行为道歉完，转而在推点赞藏独言论](https://baijiahao.baidu.com/s?id=1589289443726645130&wfr=spider&for=pc) 
+ - [Spreadshirt发布“救一条狗，吃一个中国人”t恤](https://www.guancha.cn/global-news/2017_03_12_398326.shtml) 品牌方在脸书称创作是自由，不该被大使馆干涉
 
-- [韩国乐天集团支持萨德部署](https://baike.baidu.com/item/%E8%90%A8%E5%BE%B7%E5%85%A5%E9%9F%A9/20468673?fr=aladdin)
+- 范思哲
+
+ - [范思哲把香港、澳门列为国家](https://www.guancha.cn/politics/2019_08_11_513078.shtml) 道歉称“没有使用正确的国家名称”
+
+- Coach
+
+ - [coach把香港、澳门、台湾单独列为国家](https://www.guancha.cn/politics/2019_08_12_513132.shtml) 
+
+- Tarte
+
+ - [Tarte：ChingChong tomato](https://www.acfun.cn/v/ac14664088) 中国人发音不准，他们嘲笑中国人；外国人发不出jqx，他们嘲笑中国人；中国人不用刀叉，他们嘲笑中国人；外国人不会用筷子，他们嘲笑中国人。谁看了不说一句牛？
+
+- 巴黎世家
+
+ - [乳化世家-巴黎世家](http://www.mnw.cn/news/cj/2088813.html) 法国人插队并推搡中国阿姨，中国阿姨反被保安及店员暴力对待，并被勒令：中国人禁止购买
+
+- LUSH
+
+ - [LUSH与Internal Tibet Network捆绑](https://news.ifeng.com/c/7fbfCGXzkCY) 公然在包装上印International Tibet Network
+
+- Marriott
+
+ - [Marriott刚为把港澳台及西藏列为国家的行为道歉完，转而在推点赞藏独言论](https://baijiahao.baidu.com/s?id=1589289443726645130&wfr=spider&for=pc) 
+
+- 乐天
+
+ - [韩国乐天集团支持萨德部署](https://baike.baidu.com/item/%E8%90%A8%E5%BE%B7%E5%85%A5%E9%9F%A9/20468673?fr=aladdin)
+
+- 美体小铺 the body shop
+
+ - [thebodyshop致力于促进以"恢复西藏人权"为目的的非暴力活动](https://web.archive.org/web/20140312142136/http://thebodyshopfoundation.org/international-tibet-support-network/)
 
 ### 艺人/网红/IP
 - 池子池子大池子
